@@ -1,0 +1,1 @@
+# RichardStallman-Un-dia-normal
