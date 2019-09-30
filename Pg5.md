@@ -5,7 +5,7 @@ En el primer paso que da al bajar del bus, su cartera desaparece misteriosamente
 intensas miradas se clanvan en él. Su tono de piel y aspecto, le hacían ver facilmente que no era 
 del lugar.
 Un hombre de ciudad, que no duararía mucho en aquel barrio, empujado por su estado de confusión
-le pregunta a una anciana lugareña, quien le ofrece unas ramas de romero que asegura mejorarán su
+le pregunta a una lugareña anciana, quien le ofrece unas ramas de romero que asegura mejorarán su
 fortuna.
 Richard, las acepta encantado, pero cuando la anciana le solicita una voluntad, Richard, a quien
 pocos segundos antes le robaron todo su dinero, se disculpa con la anciana a la que no puede
