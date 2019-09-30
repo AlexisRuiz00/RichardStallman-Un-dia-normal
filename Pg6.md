@@ -1,1 +1,1 @@
-
+21:15 PM, el vuelo se retrasó y la conferencia hace 3 horas que ha terminado, los organizadores han decidido no pagar a Richard ya que este ni apareció por allí. Desorientado, deambula por las calle de Sevilla. Pasa un autobús por delante suya pero no puede pagarlo así que continua a pie su camino sin destino
