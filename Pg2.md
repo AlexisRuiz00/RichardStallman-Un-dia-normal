@@ -1,4 +1,4 @@
-Comprometido con su trabajo, Richard busca se dirige rápidamente a buscar el vuelo más rápido
+Comprometido con su trabajo, Richard se dirige rápidamente a buscar el vuelo más rápido
 desde Nueva York a Sevilla, 690$ sólo ida teniendo como presupuesto 700$. Obviamente su 
 cuenta corriente cuenta con varios ceros más, pero su rechazo a la burocracia y bancos hace que
 rara vez cuente con efectivo en su cartera. Sabiendo de su presupuesto busca alguna oferta que le
