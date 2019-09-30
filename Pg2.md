@@ -4,4 +4,4 @@ cuenta corriente cuenta con varios ceros más, pero su rechazo a la burocracia y
 rara vez cuente con efectivo en su cartera. Sabiendo de su presupuesto busca alguna oferta que le
 ahorre dinero suficiente como para sobrevivir en Sevilla. 350$, perfecta sino fuera porque tarda 8h,
 aunque la puntualidad está sobrevalorada, o al menos eso suele pensar él. ¿Qué hacer entonces?,
-¿[llegar tarde](./Pg5.md), o [llegar sin dinero](./Pg6)?
+¿[llegar tarde](./Pg5.md), o [llegar sin dinero](./Pg6.md)?
