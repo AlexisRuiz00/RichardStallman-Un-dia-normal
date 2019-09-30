@@ -14,6 +14,6 @@ hasta su hogar. Richard, generoso, aceptó.
 
 Para su sorpresa, toda la familia de la anciana se encontraba a la espera de su llegada. Aquel
 ambiente hostíl le recordó a los suburbios de su Nueva York natal, de repente, cuchillos por
-doquier que firmarón su despedia de Sevilla y en consecuencia de esta, su vida.
+doquier que firmarón su despedia de Sevilla y en consecuencia de ésta, su vida.
 
 Richard murió, dejando huerfano a la Free Software Foundationx.
